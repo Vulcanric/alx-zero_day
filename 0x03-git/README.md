@@ -1,1 +1,2 @@
-Stress
+We learn everyday
+Kai zen
